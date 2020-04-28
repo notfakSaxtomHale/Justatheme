@@ -8,3 +8,4 @@ For better discord
 6. if you have downloaded the folder just open as .rar vut if you don’t have it you will need to extract it.
 7. have fun! And yes it take 7 attempends.
 Justatheme06 is a mistake but Justatheme07 is the full version if you want more follow me.
+I am new to this so please don’t hate me if it looks bad because I am new this theme making thing.
